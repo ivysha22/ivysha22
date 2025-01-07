@@ -1,8 +1,6 @@
 ## Hi there 👋
 
 # I am Sharon Ivy Cherop
-
-📞 **Phone:** +254-719-250361  
 ✉️ **Email:** ivysha22@gmail.com  
 🔗 **LinkedIn:** [Sharon Cherop](https://linkedin.com/in/sharon-cherop)
 
